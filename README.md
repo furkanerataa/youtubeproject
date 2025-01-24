@@ -12,7 +12,7 @@ Features
 
 Embedded Music Video
 
-Email: omer.uymaz@my-aolcc.com
+Email: Furkan.Erata@my-aolcc.com
 
 
 License
